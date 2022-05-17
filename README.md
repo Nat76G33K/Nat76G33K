@@ -4,7 +4,7 @@
 
 ### Moi :
 
- - J'habite dans à Saint-Pierre sur l'Île de La Réunion ( pour moi c'est le paradis ✌).
+ - J'habite à Saint-Pierre sur l'Île de La Réunion ( pour moi c'est le paradis ✌).
  - Je vais pas en dire bcp sur ma famille mais mon frère est à l'université en double license (je crois?).
 
 ### Mes goûts :
