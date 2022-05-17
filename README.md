@@ -29,7 +29,7 @@ Et bah voilà, hein !
 
 ## Quelques comptes/contact :
 
- - E-mail (Seulement pour des demandes spéciales) : (nat76geek@gmail.com)[mailto:nat76geek@gmail.com].
+ - E-mail (Seulement pour des demandes spéciales) : nat76geek@gmail.com.
  - Discord : Nat76#3958
  - Instagram : nat76.\_.rtx
  - Snap : nathan_kda
